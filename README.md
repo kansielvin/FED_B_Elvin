@@ -1,5 +1,12 @@
 # FED_B_Elvin
-Maaf saya agak takut untuk kerja kelompok
-karena saya punya pengalaman buruk dalam kerja kelompok
+Saya Elvin dan saya mengerjakan ini dengan solo.
 
-saya mohon maaf juga apabila hasil tidak memuaskan
+Saya ada alasan tertentu kenapa mengerjakan tugas ini solo.
+Saya mempunyai pengalaman buruk dalam kerja kelompok.
+
+dan juga tidak ada peraturan berkata untuk wajib berkelompok.
+
+Mohon maaf jika saya ada kesalahan dalam menulis ini,
+dan mohon maaf apabila hasil tidak memuaskan
+
+Sekian terima kasih.
