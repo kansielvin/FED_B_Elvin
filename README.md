@@ -8,5 +8,6 @@ dan juga tidak ada peraturan berkata untuk wajib berkelompok.
 
 Mohon maaf jika saya ada kesalahan dalam menulis ini,
 dan mohon maaf apabila hasil tidak memuaskan
+Saya mohon untuk dimengerti atas kendala ini.
 
 Sekian terima kasih.
