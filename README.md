@@ -2,7 +2,7 @@
 Saya Elvin dan saya mengerjakan ini dengan solo.
 
 Saya ada alasan tertentu kenapa mengerjakan tugas ini solo.
-Saya mempunyai pengalaman buruk dalam kerja kelompok.
+Saya mempunyai pengalaman buruk dalam kerja kelompok dalam kegiatan belajar.
 
 dan juga tidak ada peraturan berkata untuk wajib berkelompok.
 
